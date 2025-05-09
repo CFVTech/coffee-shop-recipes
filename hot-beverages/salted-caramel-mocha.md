@@ -14,7 +14,7 @@
 - 1 shot Espresso Roast
 - 1 cup 2% milk
 - Whipped cream
-- Caramel 
+- Caramel sauce
 
 ## How to make Salted Caramel Mocha​
 
